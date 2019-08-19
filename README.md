@@ -1,0 +1,2 @@
+# aprendendo-a-programar-simples
+Olá me chamo Pedro Morais e busco interagir com as pessoas das minhas redes sociais e levar um aprendizado para os que estão conectados comigo, e mostrar que é possível ganhar salários usando as suas redes sociais. Eu não tenho salário, mas preciso dos meus orgânicos que o Google não me paga, esse orgânico ajudaria a fazer o desenvolvimento acontecer no meu nordeste, onde moro. Lá o povo são muito carentes de informação e aparendizado em internet , esses orgânicos já ajudaria fazer o desenvolvimento acontecer na web.
